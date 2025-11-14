@@ -53,8 +53,8 @@ y responde con análisis estructurados (IA + Web3).
 
 ### 📫 Contacto
 **GitHub:** https://github.com/programathor10  
-**LinkedIn:** *(agregalo cuando lo tengas optimizado)*  
-**Email:** *(opcional)*  
+**LinkedIn:** *https://www.linkedin.com/in/bruno-coccetta-28532421b*  
+**Email:** *brunojobs@proton.me*  
 
 ---
 
